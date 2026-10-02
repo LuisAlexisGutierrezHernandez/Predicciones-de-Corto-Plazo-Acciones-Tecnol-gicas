@@ -1,0 +1,1 @@
+# Predicciones-de-Corto-Plazo-Acciones-Tecnol-gicas
